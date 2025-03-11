@@ -74,5 +74,5 @@
 
 ## ✈️ 自用 AFF
 
-- **BEUP机场-30+国家130+全IEPL专线 主流服务器原生** ：[点击了解](https://t.stga.cn/register?code=yvI5HP9b)
+- **BEUP机场-30+国家130+全IEPL专线 主流服务器原生** ：[点击了解](https://st.stga.cn/register?code=yvI5HP9b)
 -
