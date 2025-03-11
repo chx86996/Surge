@@ -74,5 +74,5 @@
 
 ## ✈️ 自用 AFF
 
-- **机场-MESL** ：[点击了解](https://in.mesl.cloud/#/register?code=ew06hQ6A)
-- **VPS-DMIT** ：[点击了解](https://www.dmit.io/aff.php?aff=11797)
+- **BEUP机场-30+国家130+全IEPL专线 主流服务器原生** ：[点击了解](https://t.stga.cn/register?code=yvI5HP9b)
+-
